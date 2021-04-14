@@ -4,7 +4,6 @@
 🧵 I'm super into lots of crafts, too.
 📫 chelseymachin@gmail.com 
 
-
 🦊🦊🦊🦊🦊
 
 
