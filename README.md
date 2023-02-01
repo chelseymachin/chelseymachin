@@ -1,6 +1,6 @@
 👋 Hi, I’m Chelsey
 
-🌱 Class of 2022 WGU Computer Science Program
+🌱 I'm a software engineer that likes to build fun stuff.
 
 💞️ I’m looking to collaborate on any fun open-source projects and education content.
 
